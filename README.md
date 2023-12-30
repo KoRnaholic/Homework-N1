@@ -6,6 +6,6 @@
 
 - 📫 How to reach me **a_arnoup@cu.edu.ge**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.facebook.com/a.arnoup</h3>
 <p align="left">
 </p>
